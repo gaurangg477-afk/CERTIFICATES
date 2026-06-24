@@ -59,9 +59,9 @@ Aspiring AI/ML Engineer and Software Developer, seeking opportunities to apply p
 
 ## 📫 Connect With Me
 
-- GitHub: https://github.com/your-username
-- LinkedIn: Add Your LinkedIn Profile
-- Email: your-email@example.com
+- GitHub: https://github.com/gaurangg477-afk
+- LinkedIn: https://www.linkedin.com/jobs/
+- Email: gaurangg477@gmail.com
 
 ---
 
